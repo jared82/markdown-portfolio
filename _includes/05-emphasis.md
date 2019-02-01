@@ -1,0 +1,3 @@
+*Persistent*
+*Hard Worker*
+-Passionate-
